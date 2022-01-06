@@ -15,6 +15,10 @@ A list of useful things in Orlando and closer areas
 
 ## Doctors
 
+### List from Maes Amigas de Orlando
+
+* [Full list of Doctors which are making difference in Florida](https://maesamigasdeorlando.com/medicos-que-fazem-a-diferenca-na-florida/)
+
 ### Pediatrics
 
 * iKids Pediatrics: [http://mdgayosopediatrics.com/](http://mdgayosopediatrics.com/)
