@@ -1,19 +1,19 @@
 # ⭐ Orlando useful things
 A list of useful things in Orlando and closer areas
 
-## Playgrounds and activities for kids
+## ✅ Playgrounds and activities for kids
 
 * Shared list at Google Maps: [https://goo.gl/maps/FH52tqNXVLY1LpRN7](https://goo.gl/maps/FH52tqNXVLY1LpRN7)
 
-## Horizon West Development Map
+## ✅ Horizon West Development Map
 
 * [Horizon West Development Map](https://www.google.com/maps/d/u/0/viewer?mid=175-Q6tFBOSnJPT0DZH7_OSF0UM4J_fHH&ll=28.390415328844803%2C-81.60197213790609&z=13)
 
-## Groups
+## ✅ Groups
 
 * Maes amigas de Orlando: [https://grupo.maesamigasdeorlando.com/](https://grupo.maesamigasdeorlando.com/)
 
-## Doctors
+## ✅ Doctors
 
 ### List from Maes Amigas de Orlando
 
@@ -61,6 +61,6 @@ A list of useful things in Orlando and closer areas
 
 * Dr. Aldir (407) 233-3327 
 
-## Hospitals
+## ✅ Hospitals
 
 * Orlando Heath - Horizon West: [https://www.orlandohealth.com/facilities/emergency-room-and-medical-pavilion-horizon-west](https://www.orlandohealth.com/facilities/emergency-room-and-medical-pavilion-horizon-west)
