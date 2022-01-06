@@ -9,8 +9,6 @@ A list of useful things in Orlando and closer areas
 
 * [Horizon West Development Map](https://www.google.com/maps/d/u/0/viewer?mid=175-Q6tFBOSnJPT0DZH7_OSF0UM4J_fHH&ll=28.390415328844803%2C-81.60197213790609&z=13)
 
-https://www.google.com/maps/d/u/0/viewer?mid=175-Q6tFBOSnJPT0DZH7_OSF0UM4J_fHH&ll=28.390415328844803%2C-81.60197213790609&z=13
-
 ## Groups
 
 * Maes amigas de Orlando: [https://grupo.maesamigasdeorlando.com/](https://grupo.maesamigasdeorlando.com/)
