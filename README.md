@@ -15,7 +15,44 @@ A list of useful things in Orlando and closer areas
 
 * iKids Pediatrics: [http://mdgayosopediatrics.com/](http://mdgayosopediatrics.com/)
 * Dr. Pamela Ponce: [https://www.orlandohealth.com/physician-finder/pamela-ann-ponce-md#/overview](https://www.orlandohealth.com/physician-finder/pamela-ann-ponce-md#/overview)
-  * Ask for Rodrigo at 407 635 3013 for Portuguese
+  * Ask for Rodrigo at (407) 635-3013 for Portuguese
+
+### Gynecologist
+
+* Dr. Wendy Quirino: (407) 644-5371
+* Dr. George: (407) 644-5371
+* Dr. Renata Starr: (407) 846-7200
+* Dr. Andreia Moraes Acuna: (407) 571-9185
+* Dr. Virgínia Pagani: (407) 498-0071
+* Dr. Arielle A Franco: (407) 846 7200
+
+### Dentistry
+
+* Dr Carlos Gurreonero: (407) 219-5931 
+* Dr Rodrigo de Marco: (407) 699-0958 
+* Dr Gustavo de Oliveira: (407)425-4901
+
+### Pediatric Dentristry
+
+* Dr. Moema Arruda: [https://mywindermerepediatricdentistry.com/](https://mywindermerepediatricdentistry.com/)
+* Dr. Angela Willox: [https://www.smilesandcokids.com/](https://www.smilesandcokids.com/)
+
+### Primary Doctor
+
+* Dr. Mariana Sisk: (407) 635-3090
+* Dr. Anna Hinton: (407) 351-9696 | [https://harrisinternalmedicine.com/](https://harrisinternalmedicine.com/)
+* Dr Frank Yanez: (407) 674-2044 
+* Dr Sergio Menendes: (407)645-5998 
+* Dr Sarkis Barupian: (407)351-1235 
+
+### Endocrinology
+
+* Dr. Celso Silva: (407) 740-0909
+
+## Cardiology
+
+* Dr. Aldir (407) 233-3327 
+
 
 
 
