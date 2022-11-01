@@ -11,7 +11,7 @@ A list of useful things in Orlando and closer areas
 
 ## ✅ Groups
 
-* Maes amigas de Orlando: [https://grupo.maesamigasdeorlando.com/](https://grupo.maesamigasdeorlando.com/)
+* Maes amigas de Orlando: [https://maesamigasdeorlando.com/](https://maesamigasdeorlando.com/)
 
 ## ✅ Doctors
 
