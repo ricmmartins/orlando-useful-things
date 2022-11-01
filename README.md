@@ -65,5 +65,4 @@ A list of useful things in Orlando and closer areas
 
 * Orlando Heath - Horizon West: [https://www.orlandohealth.com/facilities/emergency-room-and-medical-pavilion-horizon-west](https://www.orlandohealth.com/facilities/emergency-room-and-medical-pavilion-horizon-west)
 
-## ✅ Airfare
-* [https://scottscheapflights.com/](https://scottscheapflights.com/)
+
