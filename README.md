@@ -1,5 +1,5 @@
 # ⭐ Orlando useful things
-A list of useful things in Orlando and closer areas
+A list of useful things in Orlando
 
 ## ✅ Playgrounds and activities for kids
 
