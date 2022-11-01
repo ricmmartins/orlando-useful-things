@@ -1,1 +1,5 @@
-theme: minima
+title: Orlando Guide Online
+description: The Orlando Yello Page
+show_downloads: true
+google_analytics:
+theme: jekyll-theme-modernist
